@@ -100,7 +100,7 @@ Welcome to the **Explore the World** project! 🌟 Dive into the beauty of the w
 ## 📞 **Contact Us**
 
 - **📧 Email:** [support@lightflight.com](mailto:support@lightflight.com)
-- **📞 Phone:** +1-800-123-4567
+- **📞 Phone:** +8 888 080 88 88
 
 ---
 
